@@ -16,7 +16,7 @@ Python is my go-to language for automation. I love creating scripts and tools th
 
 Feel free to connect with me on social media or check out my other online profiles:
 
-- Email: [fadl2009gh@gmail.com]
+- Email: fadl2009gh@gmail.com
 - Itch: [@FadlGh](https://fadlgh.itch.io)
 - YouTube: [@F4dL](https://www.youtube.com/@fadl2009gh/featured)
 
