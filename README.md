@@ -1,5 +1,5 @@
 
-## Hello World! I'm Fadl, a passionate individual interested in various areas of technology. Here's a quick overview of my interests, top 5 projects, and where you can find me online:
+## Hello World! I'm Fadl, a passionate individual interested in various areas of technology. Here's a quick overview of my interests and where you can find me online:
 
 ## Interests:
 
