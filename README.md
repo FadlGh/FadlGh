@@ -19,6 +19,7 @@ Feel free to connect with me on social media or check out my other online profil
 - Email: fadl2009gh@gmail.com
 - Itch: [@FadlGh](https://fadlgh.itch.io)
 - YouTube: [@F4dL](https://www.youtube.com/@fadl2009gh/featured)
+- TikTok: [@Fadl.ghaddar](https://www.tiktok.com/@fadl.ghaddar)
 
 ## Quick Bio:
 
